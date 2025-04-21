@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my family, anything pretty much..
   
   
-- ⚡ Fun fact: I love to go hunting and fishing!
+- ⚡ Fun fact: I love to go hunting and fishing! I also love to travel!!
   
